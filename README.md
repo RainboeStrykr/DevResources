@@ -8,4 +8,3 @@ Support me here [https://buymeacoffee.com/rainboestrykr](https://buymeacoffee.co
 
 ![](.gitbook/assets/bmc-button.png)
 
-\
